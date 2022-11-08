@@ -1,5 +1,3 @@
 # Collabo
 # rateurs
-
-
-salut à tous
+# TROLOLO !
