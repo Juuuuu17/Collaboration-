@@ -1,3 +1,2 @@
-# Collabo
-# rateurs
-# TROLOLO !
+# Collaboration 3il
+# Tiphaine / Julianne / Arthur
